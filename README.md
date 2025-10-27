@@ -1,2 +1,1 @@
 # AI-seller
-afsdljkasdf;ljasldfk
